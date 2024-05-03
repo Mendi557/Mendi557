@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Mendi557
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning to code
-- 💞️ I’m looking to collaborate on coding
+- 💞️ I’m looking for who to collaborate with on coding
 - 📫 How to reach me mendiblaise4@gmail.com
 - 😄 Pronouns: we allow that for the viewers to comment
 - ⚡ Fun fact: music
